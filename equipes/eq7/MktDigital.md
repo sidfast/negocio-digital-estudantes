@@ -1,5 +1,5 @@
 Membros:
 
-tomasihm@gmail.com
+tomasihn@gmail.com
 marcos.mendes@mail.fae.edu
 leonardo.a.pavao@mail.fae.edu
